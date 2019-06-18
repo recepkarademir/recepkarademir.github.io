@@ -1,3 +1,3 @@
 # recepkarademir.github.io
 https://recepkarademir.github.io
-Yakında düzenlenecek . Edit erh
+Yakında düzenlenecek .
