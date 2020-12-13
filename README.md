@@ -14,3 +14,5 @@
 
 </body>
 </html>
+
+## BU PROJENİN KULLANILABİLİRLİK SEVİYESİ: 9/10
